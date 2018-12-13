@@ -1,1 +1,0 @@
-# priyankapurtiply.github.io
